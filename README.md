@@ -1,0 +1,1 @@
+Longstay apartment Zürich
